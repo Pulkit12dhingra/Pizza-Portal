@@ -1,4 +1,4 @@
-(Go for emotions not for spellings cuz I am really bad ai it.....)
+(Go for emotions not for spellings cuz I am really bad at it.....)
 
 # Pizza
 
